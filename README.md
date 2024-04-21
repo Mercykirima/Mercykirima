@@ -3,7 +3,7 @@
 - 🌱 I’m currently learning IT / Cybersec auditing
 - 💞️ I’m looking to collaborate on 
 - 📫 How to reach me 
-- 😄 Pronouns: ...her
+- 😄 Pronouns: ...her/hers
 - ⚡ Fun fact:first, i love runny eggs and second,in highschool, i was a prefect for 3yrs and till today i have not entered the principles office.
 
 <!---
